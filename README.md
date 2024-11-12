@@ -16,3 +16,4 @@ klo 1.00
 games 2
 name brill
 how good she is 10000% yeah i think thats good
+im not putting her id tho
