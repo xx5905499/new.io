@@ -1,1 +1,18 @@
-# new.io
+my kirka.io new name is gonna be ttv_"xx5_"ttv
+and that all i have 
+heres 
+bril kills and everthing
+17 deaths
+6 kills
+240 conis
+created 
+0 days ago
+kpg 3.00
+score 
+256
+headshots 3
+win 1
+klo 1.00
+games 2
+name brill
+how good she is 10000% yeah i think thats good
