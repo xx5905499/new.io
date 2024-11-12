@@ -17,3 +17,33 @@ games 2
 name brill
 how good she is 10000% yeah i think thats good
 im not putting her id tho
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+bristhebest has 
+0 kills
+deaths 0
+kpg nan
+klo 0
+headshots 0
+score 0
+created 0
+conis 100
