@@ -1,6 +1,5 @@
-my kirka.io new name is gonna be ttv_"xx5_"ttv
-and that all i have 
-heres 
+
+heres
 bril kills and everthing
 17 deaths
 6 kills
